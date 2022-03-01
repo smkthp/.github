@@ -9,6 +9,7 @@ VISI
 
 Menjadikan Lembaga Sertifikasi Profesi SMK Tunas Harapan Pati yang independen, unggul dan terpercaya serta diakui secara internasional.
 
+
 MISI
 
 Memberi panduan yang terarah dan tegas bahwa sistem manajemen mutu dapat diterapkan secara effektif pada setiap kegiatan.
